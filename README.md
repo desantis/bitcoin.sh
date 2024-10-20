@@ -1,1 +1,1 @@
-# #!de : <www.bitcoin.sh/index.html> :: \*this\* : ™ or ® and © 2013-2024 an llc DBA bitcoin.ah w/ special permission from A NAME YOU CAN TRUST. All Rights Reserved. Made in USA ፨ $I/0 ። desantis.bv @ 1FEDQP2D5zmpRXRG5zQn7vYVs4JVHinjEv
+# #!de : <www.bitcoin.sh/index.html> :: \*this\* : ™ or ® and © 2013-2024 an llc DBA bitcoin.sh w/ special permission from A NAME YOU CAN TRUST. All Rights Reserved. Made in USA ፨ $I/0 ። desantis.bv @ 1FEDQP2D5zmpRXRG5zQn7vYVs4JVHinjEv
